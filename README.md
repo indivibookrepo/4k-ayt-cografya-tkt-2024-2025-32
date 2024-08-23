@@ -1,0 +1,1 @@
+# 4k-ayt-cografya-tkt-2024-2025-32
